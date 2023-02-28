@@ -1,6 +1,6 @@
 Hi👋 
 
-My name is Kasper and I am part of the Technology Solutions and Services department in the Intelligent Society division of Sweco Denmark. I am Head of Technology and Team Manager.
+My name is Kasper and I am part of Digital Drift & Forvaltning division of Sweco Denmark. I am Head of Technology and Team Manager.
 
 I’m very interested in ensuring a higher degree of collaboration within Sweco AB 👀
 
